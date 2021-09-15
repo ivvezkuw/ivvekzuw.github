@@ -1,2 +1,2 @@
-# ivvekzuw.github
+# ivvekzuw.github.io
 :)
